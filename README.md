@@ -1,0 +1,1 @@
+# Analytics_based_on_Govt_Land_Information_System_-GLIS-_Data
